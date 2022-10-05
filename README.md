@@ -1,0 +1,1 @@
+![Cute Puppy](https://place-puppy.com/400x215)
